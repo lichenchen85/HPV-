@@ -1,6 +1,4 @@
-# HPV-
-知苗
-粤苗
-秒苗
-加Q群交流:995456491
-白嫖的别来
+# 抢票机器人：tixcraft、kktix、ibon、ticketplus，另外定制各类抢票网站
+需要开发的私信说明网站
+或者联系discord
+xiaohan1504
